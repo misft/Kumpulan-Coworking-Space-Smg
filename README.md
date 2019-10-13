@@ -11,7 +11,7 @@ Mari berkontribusi di Hacktoberfest!!
 ## Daftar Kota
 
 - [Semarang](#Semarang)
-
+- [Bandung](#Bandung)
 
 
 ### Semarang
@@ -25,3 +25,13 @@ Kontak      : (024) 86041018 \
 Instagram   : https://www.instagram.com/sdksemarang/ \
 Jam Buka    : 24jam (Hari besar libur) \
 Apakah Gratis ? Ya, gratis bersyarat \
+
+### Bandung
+<img src="https://www.coworker.com/indonesia/bandung/eduplex#lg=1&slide=3" height="180px" width="180px"
+align="left">
+
+**Eduplex**\
+Alamat		: Jl. Ir. H. Djuanda 84
+Alamat web	: https://www.coworker.com/indonesia/bandung/eduplex
+Kontak		: (022) 2534431
+Jam Buka	: 24 Jam
