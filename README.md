@@ -17,7 +17,7 @@ Terletak di kawasan Kota Lama Semarang, Semarang Digital Kreatif digunakan sebag
 <img src="https://cdn.idntimes.com/content-images/community/2017/06/screenshot-at-sep-29-07-30-37-b87310a19b947ed14ede63b696e913e6.png" height="180" width="350" align="center"> \
 
 **3. Pusat Informasi Publik Kota Semarang** \
-Diresmikan pada 28 Oktober 2016, Pusat Informasi Publik (PIP) Kota Semarang menjadi tempat rujukan untuk mencari pengetahuan seputar Kota Semarang, ruang meeting, ruang komunitas hingga nongkrong bagi warga Semarang. Setiap harinya, Pusat Informasi Publik Kota Semarang tidak pernah sepi dikunjungi warga sejak pagi hingga malam hari loh. 
+Diresmikan pada 28 Oktober 2016, Pusat Informasi Publik (PIP) Kota Semarang menjadi tempat rujukan untuk mencari pengetahuan seputar Kota Semarang, ruang meeting, ruang komunitas hingga nongkrong bagi warga Semarang. Setiap harinya, Pusat Informasi Publik Kota Semarang tidak pernah sepi dikunjungi warga sejak pagi hingga malam hari loh.
 
 <img src="https://cdn.idntimes.com/content-images/community/2017/06/papan-chicken-coworking-space-9f195be3704a2d0a4f866cab83648c44.jpg" height="180" width="350" align="center"> \
 
@@ -28,6 +28,5 @@ Mengusung konsep cafe dan tempat kerja modern, Papan Kitchen & Co-Working Space 
 
 **5. Tiga Perempat Co-Working Space** \
 Dinamis, instagramable dan minimalis merupakan konsep yang diusung oleh Tiga Perempat Co-Working Space Semarang. Tiga Perempat Co-Working Space terletak di Tembalang. Suasana kondusif menjadi salah satu unggulan di kawasan ini karena jauh dari keramaian. Co-Working Space ini terbagi menjadi beberapa ruangan, diantaranya ruang meeting, ruang kerja utama, ruang santai, ruang event dan teras outdoor sembari menikmati suasana Kota Semarang.
-
 
 itulah beberapa Coworking didaerah semarang, semoga membantu yah!
